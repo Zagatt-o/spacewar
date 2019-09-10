@@ -156,3 +156,4 @@
 154. Para derrotar o inimigo, use um Shidore.
 155. Caso tenha prisão de ventre, chame um Cocôach.
 156. Quando tudo parecer estar dando errado, olhe para as estrelas e dê um sorriso.
+157. Atenção!! Ao  proferir "akon" indiscriminadamente você ponhe em risco o equilíbrio universal
